@@ -1,0 +1,1 @@
+# Industrial-PV-System-Sizing-Solar-Irradiance-Analysis-Berlin-Brewery-
